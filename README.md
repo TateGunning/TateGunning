@@ -1,1 +1,1 @@
-Humbling journey and I still don't how to code
+Humbling journey learning too code
