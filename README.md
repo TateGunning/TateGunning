@@ -1,3 +1,3 @@
-# **this provokes more thought**
-## _one button at a time we create_
-### respectfully develop promote equality
+
+# _one button at a time we create_
+##respect develop promote equality
