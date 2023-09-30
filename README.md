@@ -1,3 +1,3 @@
 
-# _learning, one button at a time we create_
-# Respect for understanding technologies and building equality
+# _learn, one button at a time, create_
+passionate about understanding technology, building raltionships, and advocator of open source network & internet identity 
