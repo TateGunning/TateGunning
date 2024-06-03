@@ -1,9 +1,9 @@
 ### short term objectives
-Coders see code how they see it individually
-Even when a milestone is accomplished they are looking
-even a milestone met is a milestone
-Without your identity, who are we?
-How cn we trust if we have no identity?
-These applications are a chance to learn, groww, and develop
-The stack willl include authenticator universae, universe ID, and privacy universe (a one button reset feature) both iPhone and Androids. Our main goal to develop the safest cell phone setup for women and children, deploying to small businesses and veterens or underpriveldged communities. To associate with top partners and universities to strengthen global priviacy posture especially in developing countries.
-Next app counts votes, acurately, and thereafter compliant international trade enthusiast and advocatacy platforms. 
+See code how you want to, individually
+Or write your own
+Another milestone accomplished even when they aren't looking
+Or get caught with your pants down
+Without our identity, who are you?
+Trust gained accompanies the chance to learn, grow, and develop
+The stack includes accreditation, rights, license and universe ID. There is no privacy expected in the universe (a one button reset feature takes care all it) any device. Our main goal to develop the safest devices while deploying satelilte applications to underpriveldged communities strengthening priviacy posture globally.
+Next votecount? Hopefully compliant international trade enthusiast who appreciate the right to participate in open forums.  
