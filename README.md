@@ -1,2 +1,2 @@
 ### Collaboration 
-and deep appreciation for scope, functional technology and great leadership.
+and deep appreciation for cleared scopes of functional technology with great leadership.
